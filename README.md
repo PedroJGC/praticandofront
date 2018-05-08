@@ -1,1 +1,1 @@
-Primeira versão do site Mexido Geek!
+Primeira versão do site Mexido Geek! (alterado e atualizado)
